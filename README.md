@@ -1,0 +1,2 @@
+Gút là bệnh lý về xương khớp đau đớn nhất với biểu hiện đầu tiên là ở khớp ngón chân, khớp gối, khớp bàn tay. Khi đó, các khớp sẽ bị sưng tấy và đau nhức dữ dội. Nếu không điều trị tốt có thể biến chứng gây biến dạng khớp, thậm chí là tàn phế.
+https://www.linkedin.com/pulse/%C4%91au-kh%E1%BB%9Bp-g%E1%BB%91i-tri%E1%BB%87u-ch%E1%BB%A9ng-nguy%C3%AAn-nh%C3%A2n-v%C3%A0-c%C3%A1ch-%C4%91i%E1%BB%81u-tr%E1%BB%8B-ch%E1%BB%AFa-b%E1%BB%87nh-kh%E1%BB%9Bp/?published=t
